@@ -2,5 +2,5 @@
 
 Building, learning, improving.
 
-[Portfolio](https://www.subxm.me/) • [LinkedIn](https://www.linkedin.com/in/subham-singh-negi/) • [Twitter](https://x.com/subhamfr)
+[Portfolio](https://www.subxm.me/) • [LinkedIn](https://www.linkedin.com/in/subxm/) • [Twitter](https://x.com/subhamfr)
 
